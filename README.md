@@ -8,6 +8,7 @@ Poilitical parties or organisation without having people's support, won't be abl
 - The first step is identifying them
 - The second step is supporting them by joining as their members
 - The third step is contributing toward their goals
+These group have potential to work together and make a coalition to build stonger power against IR dictatr regime in Iran.
   
 This is a community action that organised by Republican group to gather all of them together.
 The same effort can manage by Constitutionalists or Monarchists group to manage their own group and build their coalition.
