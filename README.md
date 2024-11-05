@@ -6,7 +6,7 @@ This is a map showing all active republican groups accross the world.
 Poilitical parties or organisation without having people's support, won't be able to lead the revolution or make a big change.
 
 - The first step is identifying them
-- The second step is supporting them by membership
+- The second step is supporting them by joining as their members
 - The third step is contributing toward their goals
   
 This is a community action that organised by Republican group to gather all of them together.
